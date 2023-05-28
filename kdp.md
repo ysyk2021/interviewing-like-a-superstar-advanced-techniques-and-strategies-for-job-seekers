@@ -35,5 +35,5 @@ MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles
 17. Industry-specific interviews
 18. Mock interviews
 19. Video interviews
-20. Confidence building.
+20. Confidence building
 
