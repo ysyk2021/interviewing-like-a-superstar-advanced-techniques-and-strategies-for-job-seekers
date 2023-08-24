@@ -1,5 +1,3 @@
-Chapter 11: Mastering Nonverbal Communication
-=============================================
 
 Nonverbal communication plays a critical role in job interviews, as it can convey confidence, professionalism, and engagement. In this chapter, we'll explore strategies for mastering nonverbal communication in job interviews.
 

@@ -1,5 +1,3 @@
-What to Do If You Don't Get the Job
-================================================================================
 
 Following up after a job interview is important, even if you don't get the job. In this chapter, we'll explore strategies for following up after the interview if you don't get the job.
 

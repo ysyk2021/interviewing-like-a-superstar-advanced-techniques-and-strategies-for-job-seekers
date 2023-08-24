@@ -1,5 +1,3 @@
-Controlling Your Own Nonverbal Cues
-==================================================================================
 
 Nonverbal communication is an important aspect of the job interview process. In addition to reading and interpreting your interviewer's body language, it's important to be aware of and control your own nonverbal cues. In this chapter, we'll explore techniques for controlling your own nonverbal cues to effectively communicate and make a positive impression during the interview.
 

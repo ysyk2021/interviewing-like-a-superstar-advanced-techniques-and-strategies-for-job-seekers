@@ -1,5 +1,3 @@
-The SAR Method for Answering Behavioral Questions
-===============================================================================================
 
 Answering behavioral questions effectively is an important aspect of a successful job interview. In this chapter, we'll explore the SAR method for answering behavioral questions.
 

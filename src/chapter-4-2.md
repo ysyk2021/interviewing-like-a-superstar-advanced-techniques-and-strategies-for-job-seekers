@@ -1,5 +1,3 @@
-Creating a Professional Online Presence
-================================================================================
 
 Building your personal brand is essential to stand out in the job search process. In this chapter, we'll explore strategies for creating a professional online presence.
 

@@ -1,5 +1,3 @@
-Understanding the Job Requirements and Responsibilities
-========================================================================================================
 
 Researching the company and position is a critical part of preparing for a job interview. In this chapter, we'll explore strategies for understanding the job requirements and responsibilities through effective research.
 

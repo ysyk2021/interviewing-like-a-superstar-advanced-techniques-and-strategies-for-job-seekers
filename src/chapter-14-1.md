@@ -1,5 +1,3 @@
-Tools and Resources for Interview Preparation and Success
-================================================================================================================
 
 Building a strong interviewing skills toolkit is essential for success in the job search process. In this chapter, we'll explore tools and resources for interview preparation and success.
 

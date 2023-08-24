@@ -1,5 +1,3 @@
-Communicating Effectively During the Interview
-===============================================================================================
 
 Communicating effectively during the interview is critical to demonstrating your qualifications and making a positive impression on potential employers. In this chapter, we'll explore strategies for answering common interview questions and communicating effectively.
 

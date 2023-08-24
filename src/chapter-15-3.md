@@ -1,5 +1,3 @@
-Proven Methods for Making a Lasting Impact on the Interviewer
-=============================================================================================================================
 
 Making a lasting impact on the interviewer is a critical component of job interview success. In this chapter, we'll explore advanced techniques and strategies for making a lasting impact in job interviews.
 

@@ -1,5 +1,3 @@
-Chapter 9: Following Up After the Interview
-===========================================
 
 Following up after the interview is a critical part of the job search process. In this chapter, we'll explore strategies for following up after the interview.
 

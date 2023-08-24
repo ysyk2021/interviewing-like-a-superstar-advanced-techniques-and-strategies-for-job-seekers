@@ -1,5 +1,3 @@
-Phone and Video Interviews
-=================================================================================
 
 Phone and video interviews have become increasingly common in the job search process, especially with the rise of remote work. In this chapter, we'll explore strategies for navigating these special interview circumstances.
 

@@ -1,5 +1,3 @@
-Techniques for Continuous Improvement of Your Interviewing Skills
-========================================================================================================================
 
 Interviewing skills are essential for success in the job search process. In this chapter, we'll explore techniques for continuous improvement of your interviewing skills.
 

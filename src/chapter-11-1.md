@@ -1,5 +1,3 @@
-Reading and Interpreting Body Language
-=====================================================================================
 
 Nonverbal communication plays a crucial role in the job interview process. In this chapter, we'll explore techniques for reading and interpreting body language to effectively communicate and make a positive impression during the interview.
 

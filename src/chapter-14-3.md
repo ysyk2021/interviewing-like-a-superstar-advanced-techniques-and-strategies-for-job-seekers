@@ -1,5 +1,3 @@
-Identifying Areas for Improvement and How to Address Them
-================================================================================================================
 
 Building a strong interviewing skills toolkit is essential for success in the job search process. In this chapter, we'll explore strategies for identifying areas for improvement and how to address them.
 

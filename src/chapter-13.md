@@ -1,5 +1,3 @@
-Chapter 13: Answering Difficult Interview Questions
-===================================================
 
 Job interviews often involve difficult or unexpected questions that can catch candidates off guard. In this chapter, we'll explore advanced techniques and strategies for answering difficult interview questions.
 

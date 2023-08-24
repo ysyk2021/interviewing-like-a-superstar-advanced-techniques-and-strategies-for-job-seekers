@@ -1,5 +1,3 @@
-Chapter 6: Answering Common Interview Questions
-===============================================
 
 Answering common interview questions is essential for success in the job search process. In this chapter, we'll explore techniques for answering common interview questions, handling difficult interview questions and situations, and communicating effectively during the interview.
 

@@ -1,5 +1,3 @@
-Using Advanced Storytelling Techniques to Make Your Answers Compelling
-====================================================================================================================
 
 Storytelling is a powerful tool for making your answers in job interviews compelling and memorable. In this chapter, we'll explore advanced techniques for using storytelling in job interviews.
 

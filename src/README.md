@@ -1,4 +1,4 @@
-# Introduction
+
 
 In today's highly competitive job market, the interview process has become increasingly challenging for job seekers. In order to stand out from the crowd and secure a job offer, it is essential to have advanced interviewing techniques and strategies.
 

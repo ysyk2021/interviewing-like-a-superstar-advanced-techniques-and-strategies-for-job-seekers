@@ -1,5 +1,3 @@
-Developing a Strong Personal Brand
-===========================================================================
 
 Developing a strong personal brand is essential to standing out in the job search process and advancing your career. In this chapter, we'll explore strategies for developing a strong personal brand.
 

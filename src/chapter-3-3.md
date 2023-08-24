@@ -1,5 +1,3 @@
-Identifying Potential Interview Questions
-==========================================================================================
 
 Researching the company and position before an interview is essential to demonstrating your interest and engagement, as well as preparing for potential interview questions. In this chapter, we'll explore strategies for identifying potential interview questions.
 

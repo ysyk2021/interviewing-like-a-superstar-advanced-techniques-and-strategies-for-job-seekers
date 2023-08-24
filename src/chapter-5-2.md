@@ -1,5 +1,3 @@
-Techniques for Managing Interview Anxiety
-=================================================================================
 
 Feeling nervous or anxious before a job interview is common, but it's important to manage these feelings so they don't interfere with your performance. In this chapter, we'll explore techniques for managing interview anxiety.
 

@@ -1,5 +1,3 @@
-Chapter 14: Building Your Interviewing Skills Toolkit
-=====================================================
 
 In order to excel in job interviews, it's important to have a toolkit of skills and resources to help you prepare and perform at your best. In this chapter, we'll explore tools and techniques for building your interviewing skills toolkit.
 

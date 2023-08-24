@@ -1,5 +1,3 @@
-Crafting a Resume and Cover Letter That Stand Out
-==========================================================================================
 
 Crafting a resume and cover letter that effectively showcase your skills and experience is critical to building your personal brand. In this chapter, we'll explore strategies for creating a resume and cover letter that stand out.
 
