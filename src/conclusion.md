@@ -1,5 +1,4 @@
 
-
 In this book, we've explored advanced techniques and strategies for job seekers to excel in job interviews. From managing interview anxiety to building a strong interviewing skills toolkit, we've covered a range of topics to help you prepare and perform at your best.
 
 Summary of Key Points
