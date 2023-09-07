@@ -10,3 +10,7 @@ Throughout this book, we will draw on real-world examples and case studies to il
 Whether you are a recent graduate entering the job market, a mid-career professional seeking new opportunities, or anyone looking to improve their interviewing skills and advance their career, this book will provide valuable insights and actionable advice for interviewing like a superstar. So let's dive in and explore the key principles and strategies for achieving success in the job interview process!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
