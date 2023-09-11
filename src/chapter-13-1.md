@@ -1,5 +1,4 @@
-Chapter 9: Advanced Techniques for Answering Difficult or Unexpected Questions
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Job interviews can be unpredictable, and you may encounter challenging or unexpected questions that catch you off guard. In these moments, your ability to handle these questions with poise and confidence can make a significant difference. This chapter explores advanced techniques and strategies for effectively answering tough and unexpected interview questions.
 

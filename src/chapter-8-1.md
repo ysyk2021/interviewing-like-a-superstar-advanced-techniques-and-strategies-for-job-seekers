@@ -1,5 +1,4 @@
-Chapter 7: Phone and Video Interviews
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the nuances of phone and video interviews, essential components of the modern job-seeking landscape. Mastering these interview formats is crucial, as they require unique strategies and techniques to convey your qualifications effectively while navigating the challenges of remote communication.
 

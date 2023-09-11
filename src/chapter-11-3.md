@@ -1,5 +1,4 @@
-Chapter 8: Creating a Positive First Impression
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the world of job interviews, first impressions are critical. Within the first few seconds of meeting you, interviewers form initial judgments that can significantly influence their perception of you throughout the interview. This chapter delves into advanced techniques and strategies for crafting a memorable and positive first impression that will set the stage for a successful interview.
 

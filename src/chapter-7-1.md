@@ -1,5 +1,4 @@
-Chapter 1: Identifying Your Unique Selling Points
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Before you step into the competitive arena of job interviews, it's essential to understand what sets you apart from other candidates. This chapter delves into the process of identifying your unique selling points (USPs) to help you showcase your value and make a lasting impression during interviews.
 

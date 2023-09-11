@@ -1,5 +1,4 @@
-Chapter 9: Using Advanced Storytelling Techniques to Make Your Answers Compelling
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we'll delve into advanced storytelling techniques that will elevate your interview responses from ordinary to extraordinary. By mastering the art of storytelling, you can captivate your interviewers, make a memorable impression, and effectively convey your qualifications and experiences.
 

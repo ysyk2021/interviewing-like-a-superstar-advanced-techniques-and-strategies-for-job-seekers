@@ -1,5 +1,4 @@
-Chapter 4: Crafting a Resume and Cover Letter That Stand Out
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Your resume and cover letter are often the first impression you make on potential employers. This chapter explores advanced techniques and strategies for job seekers to create compelling resumes and cover letters that grab the attention of recruiters and hiring managers.
 

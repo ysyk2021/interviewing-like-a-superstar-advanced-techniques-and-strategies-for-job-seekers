@@ -1,5 +1,4 @@
-Chapter 6: Communicating Effectively During the Interview
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication is the cornerstone of successful interviewing. This chapter explores advanced techniques and strategies to help job seekers communicate confidently and persuasively during interviews, leaving a lasting impression on potential employers.
 

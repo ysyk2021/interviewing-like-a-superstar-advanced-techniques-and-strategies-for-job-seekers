@@ -1,5 +1,4 @@
-Chapter 6: Creating a Professional Online Presence
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's competitive job market, having a strong and professional online presence is essential for job seekers. Employers often turn to the internet to learn more about potential candidates, so it's crucial to make a positive impression. In this chapter, we will explore advanced techniques and strategies for creating a standout online presence that can help you shine like a superstar during the interview process.
 

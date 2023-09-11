@@ -1,5 +1,4 @@
-Chapter 3: What to Expect During the Interview Process
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Preparing for a job interview involves more than just practicing answers to common questions. Understanding the entire interview process and what to expect at each stage can help you approach it with confidence and composure. In this chapter, we will explore the various components of the interview process, from initial contact to follow-up.
 

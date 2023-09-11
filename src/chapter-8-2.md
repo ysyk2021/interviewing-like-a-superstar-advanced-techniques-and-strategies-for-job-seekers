@@ -1,5 +1,4 @@
-Chapter 10: Group Interviews
-============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Group interviews, sometimes referred to as panel interviews, are a unique format that can be intimidating yet highly informative for job seekers. In this chapter, we will explore advanced techniques and strategies for navigating group interviews effectively.
 

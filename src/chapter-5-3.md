@@ -1,5 +1,4 @@
-Chapter 2: Strategies for Building Confidence and a Winning Mindset
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Confidence and a positive mindset are essential attributes for excelling in job interviews. In this chapter, we'll explore effective strategies to boost your self-assurance and cultivate a mindset that will help you shine like a superstar during the interview process.
 

@@ -1,5 +1,4 @@
-Chapter 3: Gathering Information About the Company and Its Culture
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the essential process of gathering information about the company and its culture. Understanding the organization you're interviewing with is crucial for tailoring your approach and demonstrating your genuine interest during the interview.
 

@@ -1,5 +1,4 @@
-Chapter 11: Innovative Techniques for Standing Out in Highly Competitive Hiring Environments
-============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's fiercely competitive job market, it's essential for job seekers to employ innovative strategies that set them apart from the competition. This chapter explores advanced techniques and creative approaches to help you shine in high-demand hiring environments.
 

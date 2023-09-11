@@ -1,5 +1,4 @@
-Chapter 14: Identifying Areas for Improvement and How to Address Them
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Continuous self-assessment and improvement are essential for becoming an exceptional job seeker. In this chapter, we will explore how to identify areas for improvement in your interviewing skills and provide strategies for addressing them effectively.
 

@@ -1,5 +1,4 @@
-Chapter 5: Showcasing Your Skills, Achievements, and Experience
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we'll explore advanced techniques and strategies for job seekers to effectively showcase their skills, achievements, and experience during job interviews. Mastering this aspect of interviewing can make you shine like a superstar candidate.
 

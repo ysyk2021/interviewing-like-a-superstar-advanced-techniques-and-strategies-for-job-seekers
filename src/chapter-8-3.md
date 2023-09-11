@@ -1,5 +1,4 @@
-Chapter 6: Second-Round and Final Interviews
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the intricacies of second-round and final interviews, exploring advanced techniques and strategies to excel in these critical stages of the job search process. As you progress through the interview rounds, the stakes are higher, but so are the opportunities to prove your worth to the prospective employer.
 

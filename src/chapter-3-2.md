@@ -1,5 +1,4 @@
-Chapter 5: Understanding the Job Requirements and Responsibilities
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we'll delve into the critical process of thoroughly understanding the job requirements and responsibilities. To interview like a superstar, you must have a clear grasp of what the role entails, ensuring you can align your qualifications and experiences effectively.
 

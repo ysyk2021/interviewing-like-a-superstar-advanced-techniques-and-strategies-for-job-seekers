@@ -1,5 +1,4 @@
-Chapter 8: Demonstrating Your Thought Leadership and Innovation
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how showcasing your thought leadership and innovation can set you apart as a standout candidate during the job-seeking process. These qualities not only demonstrate your expertise but also your ability to drive positive change and contribute to your potential employer's success.
 

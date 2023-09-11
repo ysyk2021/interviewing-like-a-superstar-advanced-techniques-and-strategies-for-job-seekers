@@ -1,5 +1,4 @@
-Chapter 8: Expert Strategies for Acing Job Interviews
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into advanced strategies that will elevate your interview performance to superstar levels. These expert techniques go beyond the basics and are designed to help you stand out, make a lasting impression, and ultimately secure the job you desire.
 

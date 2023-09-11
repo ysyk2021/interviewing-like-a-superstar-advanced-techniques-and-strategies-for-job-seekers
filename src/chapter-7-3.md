@@ -1,5 +1,4 @@
-Chapter 6: Providing Evidence of Your Qualifications
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into advanced techniques and strategies for job seekers to effectively provide concrete evidence of their qualifications during interviews. Demonstrating your capabilities with evidence is key to convincing potential employers that you are the superstar candidate they need.
 

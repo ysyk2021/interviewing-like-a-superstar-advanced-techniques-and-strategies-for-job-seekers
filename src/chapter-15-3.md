@@ -1,5 +1,4 @@
-Chapter 5: Proven Methods for Making a Lasting Impact on the Interviewer
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore advanced techniques and strategies that will help job seekers make a lasting and positive impression on their interviewers. While basic interview skills are crucial, it's the extra mile you go that can set you apart from other candidates and leave a memorable mark on the interviewer's mind.
 

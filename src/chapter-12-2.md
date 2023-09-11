@@ -1,5 +1,4 @@
-Chapter 5: The SAR Method for Answering Behavioral Questions
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore a highly effective approach to answering behavioral questions in interviews---the SAR method. Mastering this method will help you provide structured, compelling responses that showcase your skills and experiences to potential employers.
 

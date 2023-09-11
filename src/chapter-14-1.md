@@ -1,5 +1,4 @@
-Chapter 9: Tools and Resources for Interview Preparation and Success
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the invaluable tools and resources available to job seekers to enhance their interview preparation and increase their chances of success. Leveraging these tools can provide a competitive edge and boost confidence during the interview process.
 

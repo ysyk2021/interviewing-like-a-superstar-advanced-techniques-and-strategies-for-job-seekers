@@ -1,5 +1,4 @@
-Chapter 7: Techniques for Answering Common Interview Questions
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the competitive world of job interviews, knowing how to craft compelling responses to common questions is essential. This chapter delves into advanced techniques and strategies for job seekers to effectively answer some of the most frequently asked interview questions.
 

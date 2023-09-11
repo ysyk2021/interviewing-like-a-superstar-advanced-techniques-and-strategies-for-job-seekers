@@ -1,5 +1,4 @@
-Chapter 11: Techniques for Continuous Improvement of Your Interviewing Skills
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the dynamic world of job hunting, standing still means falling behind. As with any skill, your interview techniques can always be refined and improved. In this chapter, we'll delve into strategies and methods to ensure that you're constantly evolving and enhancing your interviewing capabilities.
 

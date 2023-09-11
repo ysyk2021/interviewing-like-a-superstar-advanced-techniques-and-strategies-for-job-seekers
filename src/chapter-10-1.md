@@ -1,5 +1,4 @@
-Chapter 7: Understanding the Salary Negotiation Process
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the intricacies of the salary negotiation process. Mastering this crucial aspect of job seeking is essential for securing a compensation package that aligns with your skills, experience, and the value you bring to the organization.
 

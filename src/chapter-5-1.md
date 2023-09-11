@@ -1,5 +1,4 @@
-Chapter 7: Tips for Creating an Effective Interview Preparation Plan
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we'll explore the crucial process of crafting an interview preparation plan that empowers job seekers to perform at their best. A well-structured plan is the foundation of interviewing like a superstar.
 

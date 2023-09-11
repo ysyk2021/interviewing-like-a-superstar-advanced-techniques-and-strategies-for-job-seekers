@@ -1,5 +1,4 @@
-Chapter 5: Developing a Strong Personal Brand
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the competitive job market, building a strong personal brand is a crucial element of successful interviewing. This chapter explores advanced techniques and strategies for job seekers to develop a powerful and distinctive personal brand that will set them apart during interviews.
 

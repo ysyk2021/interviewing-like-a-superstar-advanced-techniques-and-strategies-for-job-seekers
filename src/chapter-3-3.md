@@ -1,5 +1,4 @@
-Chapter 8: Identifying Potential Interview Questions
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we'll explore strategies for job seekers to identify potential interview questions, a crucial step in effective interview preparation. By anticipating and preparing for likely questions, you'll be better equipped to impress interviewers and demonstrate your qualifications.
 

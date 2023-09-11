@@ -1,5 +1,4 @@
-Chapter 7: Handling Difficult Interview Questions and Situations
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore advanced techniques and strategies for job seekers to navigate challenging interview questions and situations with confidence and finesse. Interviews often include questions that require thoughtful responses, as well as unexpected scenarios that test your adaptability and problem-solving skills. By mastering the art of handling difficult interview questions and situations, you can increase your chances of shining like a superstar during the job interview process.
 

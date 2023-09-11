@@ -1,5 +1,4 @@
-Chapter 7: Reading and Interpreting Body Language
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the high-stakes world of job interviews, effective communication goes beyond words. Your ability to read and interpret body language, as well as project the right signals, can significantly impact your success. This chapter explores advanced techniques and strategies for harnessing the power of nonverbal cues during interviews.
 

@@ -1,5 +1,4 @@
-Chapter 13: What to Do If You Don't Get the Job
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Not every job interview ends with an offer, and facing rejection is an inevitable part of the job-seeking journey. In this chapter, we will discuss constructive steps to take when you don't get the job, turning a setback into an opportunity for growth and future success.
 

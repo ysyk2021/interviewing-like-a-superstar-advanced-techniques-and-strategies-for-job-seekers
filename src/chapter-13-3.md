@@ -1,5 +1,4 @@
-Chapter 6: Tips for Turning Negative Aspects into Positives
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 The interview room can sometimes feel like a battleground where you're defending your qualifications and battling against potential negatives. However, superstar interviewees know that every challenge, setback, or negative aspect can be reframed and presented as a strength or growth opportunity. Let's explore how to pivot from perceived negatives into shining positives during an interview.
 
